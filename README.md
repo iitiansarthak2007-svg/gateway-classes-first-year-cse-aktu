@@ -1,27 +1,28 @@
-# 📚 Gateway Classes – AKTU CSE First Year Notes & PDFs
+# 📚 Gateway Classes – AKTU CSE First Year Study Material
 
-Welcome to the **Gateway Classes AKTU CSE First Year Study Material Collection!**
+Get access to Gateway Classes AKTU B.Tech CSE First Year PDFs and study materials.
 
-Get access to useful study materials and PDFs for AKTU B.Tech CSE First Year.
+## 💰 Price: ₹50 Only
 
-### 💰 Price: ₹50 Only
+📂 **Study Material Collection:**
 
-📂 **Study Material:**  
-[Click Here to View PDF Collection on Google Drive](https://drive.google.com/drive/folders/1vyQmURVRJToIUokySBkVtdL0FIamAk6l?usp=sharing)
+[📥 View PDF Collection on Google Drive](https://drive.google.com/drive/folders/1vyQmURVRJToIUokySBkVtdL0FIamAk6l?usp=sharing)
 
-### 🔒 How to Get Access?
+## 🔒 How to Get Access?
 
-This is a **PAID collection**.
+1. DM me on Instagram.
+2. Pay ₹50 for the study material.
+3. Send payment confirmation.
+4. Get access to the PDF collection.
 
-1. Message me on Instagram.
-2. Send your payment of ₹50.
-3. Share your payment confirmation.
-4. Get access to the study material.
+## 📩 Contact & Purchase
 
-### 📩 Contact for Purchase
+**Instagram:** [@sarthak.junction](https://www.instagram.com/sarthak.junction/)
 
-**DM me on Instagram to get access.**
+👉 [MESSAGE ME ON INSTAGRAM](https://www.instagram.com/sarthak.junction/)
 
-⚠️ **Note:** This is paid study material. Please contact me on Instagram before making payment. Access is provided after payment confirmation.
+---
 
-**Price: ₹50 Only!**
+⚠️ **Important:** This is paid study material. Access is provided after payment confirmation.
+
+<sub>© Gateway Classes | AKTU CSE First Year | ₹50 Only</sub>
