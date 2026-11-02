@@ -1,46 +1,60 @@
 # 🎓 GATEWAY CLASSES – AKTU PAID BATCH NOTES
 ### AKTU B.Tech CSE | First Year
 
-**Your Study Partner for AKTU First Year Preparation!**
+**Prepare Smarter. Study Better. Stay Ahead!**
 
 Get access to Gateway Classes AKTU Paid Batch Notes for B.Tech CSE First Year.
 
 ---
 
-## 🔥 LIMITED-TIME OFFER
+## 🔥 LIMITED-TIME SPECIAL OFFER
 
-# ₹51 ONLY
+# 💰 ₹51 ONLY
 
-<sub>Special limited-time access price.</sub>
+<sub>Special introductory price – Limited Time Only!</sub>
 
 ### 📚 WHAT YOU GET
 - Gateway Classes AKTU Paid Batch Notes
-- First Year CSE study material
-- PDF-based learning resources
-- Convenient digital access
-
-### 💳 HOW TO PURCHASE
-
-1. Visit my Instagram profile.
-2. Send **"AKTU NOTES"** via DM.
-3. Confirm the material details and price.
-4. Complete the ₹51 payment.
-5. Receive access after payment verification.
-
-### 📩 GET ACCESS NOW
-
-**Price: ₹51 Only**
-
-👉 [CONTACT ON INSTAGRAM – @sarthak.junction](https://www.instagram.com/sarthak.junction/)
+- B.Tech CSE First Year study resources
+- Digital PDF collection
+- Convenient Google Drive access
 
 ---
 
-### ⏳ LIMITED-TIME OFFER
+## 📂 STUDY MATERIAL COLLECTION
 
-Don't miss this special offer!
+[📥 CLICK HERE TO VIEW GOOGLE DRIVE COLLECTION](https://drive.google.com/drive/folders/1vyQmURVRJToIUokySBkVtdL0FIamAk6l?usp=sharing)
 
-**DM NOW TO GET ACCESS**
+<sub>Contact me on Instagram to purchase and receive access.</sub>
 
-© Gateway Classes AKTU Paid Batch Notes | B.Tech CSE First Year
+---
 
-<sub>Note: These are paid digital notes. Availability and access terms will be confirmed before payment. Purchase and distribution are subject to the original content owner's permission.</sub>
+## 💳 HOW TO GET ACCESS
+
+1. Visit my Instagram profile.
+2. Send **"AKTU NOTES"** via DM.
+3. Confirm the price and material details.
+4. Pay ₹51.
+5. Receive access after payment verification.
+
+---
+
+## 📩 ORDER NOW
+
+**Instagram:** [@sarthak.junction](https://www.instagram.com/sarthak.junction/)
+
+👉 [MESSAGE ME ON INSTAGRAM](https://www.instagram.com/sarthak.junction/)
+
+---
+
+## ⏳ DON'T MISS OUT!
+
+Get your AKTU First Year Paid Batch Notes at a special price of just **₹51**.
+
+**Limited-Time Offer – Contact Now!**
+
+---
+
+© Gateway Classes | AKTU B.Tech CSE First Year
+
+<sub>Disclaimer: This is a paid digital study-material offering. Availability and access are subject to confirmation and the original content owner's permission for resale and distribution.</sub>
