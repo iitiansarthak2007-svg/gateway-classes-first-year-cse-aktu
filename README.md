@@ -1,7 +1,8 @@
 # 🎓 GATEWAY CLASSES – AKTU PAID BATCH NOTES
+
 ### AKTU B.Tech CSE | First Year
 
-**Prepare Smarter. Study Better. Stay Ahead!**
+**Prepare Smarter. Study Better. Stay Ahead! 🚀**
 
 Get access to Gateway Classes AKTU Paid Batch Notes for B.Tech CSE First Year.
 
@@ -11,9 +12,10 @@ Get access to Gateway Classes AKTU Paid Batch Notes for B.Tech CSE First Year.
 
 # 💰 ₹51 ONLY
 
-<sub>Special introductory price – Limited Time Only!</sub>
+*Special introductory price – Limited Time Only!*
 
 ### 📚 WHAT YOU GET
+
 - Gateway Classes AKTU Paid Batch Notes
 - B.Tech CSE First Year study resources
 - Digital PDF collection
@@ -23,27 +25,37 @@ Get access to Gateway Classes AKTU Paid Batch Notes for B.Tech CSE First Year.
 
 ## 📂 STUDY MATERIAL COLLECTION
 
-[📥 CLICK HERE TO VIEW GOOGLE DRIVE COLLECTION](https://drive.google.com/drive/folders/1vyQmURVRJToIUokySBkVtdL0FIamAk6l?usp=sharing)
-
-<sub>Contact me on Instagram to purchase and receive access.</sub>
+📥 **[CLICK HERE TO VIEW GOOGLE DRIVE COLLECTION](https://drive.google.com/drive/folders/1vyQmURVRJToIUokySBkVtdL0FIamAk6l?usp=sharing)**
 
 ---
 
 ## 💳 HOW TO GET ACCESS
 
-1. Visit my Instagram profile.
-2. Send **"AKTU NOTES"** via DM.
+1. Contact me directly on WhatsApp.
+2. Send **"AKTU NOTES"**.
 3. Confirm the price and material details.
 4. Pay ₹51.
 5. Receive access after payment verification.
 
 ---
 
-## 📩 ORDER NOW
+## 📲 CONTACT & ORDER NOW
 
-**Instagram:** [@sarthak.junction](https://www.instagram.com/sarthak.junction/)
+**WhatsApp Number: +91 96820 49419**
 
-👉 [MESSAGE ME ON INSTAGRAM](https://www.instagram.com/sarthak.junction/)
+👉 **[CLICK HERE TO MESSAGE ON WHATSAPP](https://wa.me/919682049419?text=AKTU%20NOTES)**
+
+### 📷 SCAN TO CHAT ON WHATSAPP
+
+<p align="center">
+  <a href="https://wa.me/919682049419?text=AKTU%20NOTES">
+    <img src="https://api.qrserver.com/v1/create-qr-code/?size=350x350&data=https%3A%2F%2Fwa.me%2F919682049419%3Ftext%3DAKTU%2520NOTES" width="250" alt="Gateway Classes WhatsApp QR Code"/>
+  </a>
+</p>
+
+<p align="center">
+  **Scan the QR code to start your WhatsApp conversation instantly!**
+</p>
 
 ---
 
@@ -51,10 +63,10 @@ Get access to Gateway Classes AKTU Paid Batch Notes for B.Tech CSE First Year.
 
 Get your AKTU First Year Paid Batch Notes at a special price of just **₹51**.
 
-**Limited-Time Offer – Contact Now!**
+**Limited-Time Offer – Contact Now on WhatsApp!**
 
 ---
 
 © Gateway Classes | AKTU B.Tech CSE First Year
 
-<sub>Disclaimer: This is a paid digital study-material offering. Availability and access are subject to confirmation and the original content owner's permission for resale and distribution.</sub>
+*Disclaimer: This is a paid digital study-material offering. Availability and access are subject to confirmation and the original content owner's permission for resale and distribution.*
