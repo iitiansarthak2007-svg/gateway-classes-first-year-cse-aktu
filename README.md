@@ -18,17 +18,28 @@ Get access to Gateway Classes AKTU Paid Batch Notes for B.Tech CSE First Year.
 
 ## 🎓 BATCH DETAILS – NOTES SOURCE
 
-The study materials in this collection are related to the following Gateway Classes batch:
+<p align="center">
+  <img src="assets/aarmbh-batch-2.0.jpg" alt="Gateway Classes AARMBH BATCH 2.0" width="600"/>
+</p>
 
-- **Batch Name:** AARMBH BATCH 2.0 – Semester 1 Combo
-- **Institute:** Gateway Classes (GW)
-- **University:** Dr. A.P.J. Abdul Kalam Technical University (AKTU)
-- **Course:** B.Tech First Year
-- **Stream:** CSE Stream (All Branches)
-- **Semester:** 1st Semester (Sem-I)
-- **Syllabus:** New Syllabus 2026–27
+<p align="center">
+  **GATEWAY CLASSES – AARMBH BATCH 2.0**
+  <br/>
+  AKTU B.Tech First Year | Semester 1 Combo
+  <br/>
+  CSE Stream (All Branches) | New Syllabus 2026–27
+</p>
 
-### 📚 About These Notes
+| Details | Information |
+|---|---|
+| Institute | Gateway Classes |
+| Batch Name | AARMBH BATCH 2.0 |
+| Course | B.Tech First Year |
+| Stream | CSE (All Branches) |
+| Semester | 1st Semester |
+| Syllabus | New Syllabus 2026–27 |
+
+### 📚 ABOUT THESE NOTES
 
 - Gateway Classes AARMBH BATCH 2.0 Sem-I Combo study materials.
 - Designed for AKTU B.Tech First Year students.
