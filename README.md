@@ -1,4 +1,3 @@
-<img width="411" height="472" alt="gateway classes" src="https://github.com/user-attachments/assets/d58fb18f-da37-42ba-9198-f5a7a83b6dbc" />
 # 🎓 GATEWAY CLASSES – AKTU PAID BATCH NOTES
 
 ### AKTU B.Tech CSE | First Year
@@ -20,7 +19,7 @@ Get access to Gateway Classes AKTU Paid Batch Notes for B.Tech CSE First Year.
 ## 🎓 BATCH DETAILS – NOTES SOURCE
 
 <p align="center">
-  <img src="assets/aarmbh-batch-2.0.jpg" alt="Gateway Classes AARMBH BATCH 2.0" width="600"/>
+  <img width="411" height="472" alt="Gateway Classes AARMBH Batch 2.0" src="https://github.com/user-attachments/assets/d58fb18f-da37-42ba-9198-f5a7a83b6dbc"/>
 </p>
 
 <p align="center">
