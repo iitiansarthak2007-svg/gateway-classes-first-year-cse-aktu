@@ -23,7 +23,7 @@ Get access to Gateway Classes AKTU Paid Batch Notes for B.Tech CSE First Year.
 </p>
 
 <p align="center">
-  **GATEWAY CLASSES – AARMBH BATCH 2.0**
+  GATEWAY CLASSES – AARMBH BATCH 2.0
   <br/>
   AKTU B.Tech First Year | Semester 1 Combo
   <br/>
