@@ -54,9 +54,6 @@ Get access to Gateway Classes AKTU Paid Batch Notes for B.Tech CSE First Year.
 ## 📚 WHAT YOU GET
 
 - Gateway Classes AKTU Paid Batch Notes
-- B.Tech CSE First Year study resources
-- Digital PDF collection
-- Convenient Google Drive access
 
 ---
 
