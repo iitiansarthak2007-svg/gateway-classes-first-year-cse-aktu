@@ -1,3 +1,4 @@
+![Uploading gateway classes.jpeg…]()
 # 🎓 GATEWAY CLASSES – AKTU PAID BATCH NOTES
 
 ### AKTU B.Tech CSE | First Year
