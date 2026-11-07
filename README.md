@@ -1,4 +1,4 @@
-![Uploading gateway classes.jpeg…]()
+<img width="411" height="472" alt="gateway classes" src="https://github.com/user-attachments/assets/d58fb18f-da37-42ba-9198-f5a7a83b6dbc" />
 # 🎓 GATEWAY CLASSES – AKTU PAID BATCH NOTES
 
 ### AKTU B.Tech CSE | First Year
